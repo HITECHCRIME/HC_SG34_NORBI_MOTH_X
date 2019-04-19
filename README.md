@@ -1,5 +1,5 @@
-# HC_SG34_Upgraded (NORBI x MOTHNODE)
-Hitech Crime Single 'Upgraded'
+# NORBI x MOTHNODE_ XXX (formerly HC_SG34_Upgraded)
+Hitech Crime Collab Single 'XXX'
 
 **Beat:** Sinister Free Dark Trap Beat 2017 Deep Rap Instrumental (Prod. Ihaksi)
 
